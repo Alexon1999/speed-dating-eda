@@ -6,7 +6,7 @@
 
 ## Video presentation
 
-[Video presentation](https://share.vidyard.com/watch/6YQgJdFv3pyy8ZNtBuQtVJ?)
+[Speed Dating - Video presentation](https://share.vidyard.com/watch/6YQgJdFv3pyy8ZNtBuQtVJ?)
 
 ## Contact
 
