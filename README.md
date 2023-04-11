@@ -6,7 +6,7 @@
 
 ## Video presentation
 
-[Bloc 2 | Speed Dating - Video presentation](https://share.vidyard.com/watch/6YQgJdFv3pyy8ZNtBuQtVJ?)
+[Video presentation](https://share.vidyard.com/watch/6YQgJdFv3pyy8ZNtBuQtVJ?)
 
 ## Contact
 
